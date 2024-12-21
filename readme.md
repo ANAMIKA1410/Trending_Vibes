@@ -1,4 +1,4 @@
-# Create your app even WITHOUT knowing coding and AI
+# Create your AI app even WITHOUT knowing coding and AI
 ## I created TRENDING VIBES
 
 ### Overview
