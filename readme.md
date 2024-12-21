@@ -61,6 +61,6 @@ Key Advantages of Builder.ai:
 
 ## Contact
 
-For questions or feedback, reach out to Anamika Jain.
+For questions or feedback, reach out to [Anamika Jain](https://twitter.com/begineeryaj).
 
 
